@@ -6,6 +6,10 @@
 
 ![1903](https://user-images.githubusercontent.com/102359749/162223698-9a560293-0100-4d57-a89b-89028934a52b.JPG)
 
+### Osaka 2017.07.14
+
+![20170714_IMG_7184 (2)](https://user-images.githubusercontent.com/102359749/164705120-357de501-e4c9-4293-829f-b69c84ef1e16.JPG)
+
 ### Kyoto 2017.07.15
 
 ![20170715_IMG_7645](https://user-images.githubusercontent.com/102359749/163678789-29ba61bf-d281-4d95-a312-f3b28ef2ec66.JPG)
