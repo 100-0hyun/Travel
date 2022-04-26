@@ -13,3 +13,9 @@
 ### Mt, Beakdu 2018.05.29
 
 ![20180529_IMG_5147](https://user-images.githubusercontent.com/102359749/160244835-51d0ca00-a5b7-48cc-a4a0-6a7565c57821.JPG)
+
+### Dandong 2018.05.31
+
+![20180531_IMG_5496](https://user-images.githubusercontent.com/102359749/165317952-336a6e27-83ee-4c44-9bcf-4e0dfb8f8ffd.JPG)
+
+
